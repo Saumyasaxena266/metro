@@ -1,0 +1,1 @@
+Metro Mate, where the city is your canvas, and commuting becomes an art. Elevate your metro experience with a platform that goes beyond tracks, offering a symphony of features to transform your daily journeys.
